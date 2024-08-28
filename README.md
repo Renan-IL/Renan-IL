@@ -9,7 +9,7 @@
 - ⚡ Fun fact: Although I do love coding and Video games, I study a lot more about Game design than game Development 😁
 
 # About me:
-  My name is Renan, I'm 26 years old. I'm currently changing carrers and looking for new oportunities
+  My name is Renan, I'm 27 years old. I'm currently changing carrers and looking for new oportunities
 
 <details>
   <summary>
